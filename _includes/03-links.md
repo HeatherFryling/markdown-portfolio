@@ -1,1 +1,1 @@
-[GitHub_Profile]https://github.com/HeatherFryling
+[GitHub_Profile]http://github.com/HeatherFryling
